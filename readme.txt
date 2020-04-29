@@ -1,0 +1,1 @@
+this is raw program python code for getting ا
